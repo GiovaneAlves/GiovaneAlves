@@ -19,4 +19,4 @@
 Cursando ADS no 3º período.
 <br/>
 <br/>
-Apaixonado por tecnologia, educação e mudar a vida das pessoas através da programação
+Apaixonado por tecnologia, educação e mudar a vida das pessoas através da programação.
